@@ -5,4 +5,8 @@
 
 ## Story
 
-* [Scene - 1](story/scene-1.md)
+* [Page](story/page.md)
+
+***
+
+* [Scene - 1](scene-1.md)
