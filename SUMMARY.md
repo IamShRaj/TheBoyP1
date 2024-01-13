@@ -2,6 +2,7 @@
 
 * [😎 Summary](README.md)
 * [🐳 Outline](outline.md)
+* [📈 Social](social.md)
 
 ## Outlines
 
