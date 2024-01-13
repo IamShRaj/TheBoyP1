@@ -1,12 +1,17 @@
 # Table of contents
 
-* [Summary](README.md)
-* [Outline](outline.md)
+* [😎 Summary](README.md)
+* [🐳 Outline](outline.md)
 
 ## Story
 
-* [Page](story/page.md)
+* [🏫 Jnv Story - Scene - 1](story/jnv-story-scene-1.md)
 
-***
+## Outlines
 
-* [Scene - 1](scene-1.md)
+* [😇 Main Outline](outlines/main-outline.md)
+* [Page](outlines/page.md)
+
+## Images
+
+* [Scene1](images/scene1.md)
