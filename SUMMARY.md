@@ -14,9 +14,11 @@
 
 * [🏫 Jnv Story - Scene - 1](story/jnv-story-scene-1.md)
 
-## Images
+## Images/Archives
 
-* [1. Scene](images/1.-scene.md)
+* [Image Grid](images-archives/image-grid.md)
+* [1. Scene](images-archives/1.-scene.md)
+* [2](images-archives/2.md)
 
 ## Writing Stories/Diary
 

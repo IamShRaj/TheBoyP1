@@ -12,7 +12,7 @@ BOY STORY :- Life Story of a Young Hostel boy Sh full of romance, comedy and lit
 \
 
 
-<figure><img src="../.gitbook/assets/image (1) (1).png" alt=""><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/image (1) (1) (1).png" alt=""><figcaption></figcaption></figure>
 
 The whole stoey is on GitBook Servers :- [https://iamsh.gitbook.io/the-boy-school-love-p1/](https://iamsh.gitbook.io/the-boy-school-love-p1/)
 
@@ -22,7 +22,7 @@ The whole stoey is on GitBook Servers :- [https://iamsh.gitbook.io/the-boy-schoo
 ***
 
 \
-![](<../.gitbook/assets/image (2).png>)\
+![](<../.gitbook/assets/image (2) (1).png>)\
 
 
 Detailed Scene of Class of Saturday
