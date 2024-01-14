@@ -21,3 +21,4 @@
 ## Writing Stories/Diary
 
 * [13 January 2024](writing-stories-diary/13-january-2024.md)
+* [14 January 2024](writing-stories-diary/14-january-2024.md)
