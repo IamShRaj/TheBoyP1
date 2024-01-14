@@ -17,7 +17,7 @@
 ## Images/Archives
 
 * [Image Grid](images-archives/image-grid.md)
-* [1. Scene](images-archives/1.-scene.md)
+* [1. Scene](images/1.-scene.md)
 * [2](images-archives/2.md)
 
 ## Writing Stories/Diary
