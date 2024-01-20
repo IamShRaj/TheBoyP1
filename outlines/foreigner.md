@@ -42,7 +42,15 @@ Now, Sh has goto another school for state level championship, Aarohi also won he
 
 Next day they have to go. Sh was in <mark style="color:yellow;">canteen in the evening.</mark> Having fun with friends. Suddenly group of girls appear there, fight for for the seat b/w the boys and the girls Aarohi was there. Sh wanted to give the seats but his friend was fighting to he has to support but in background he was telling his frinds to quit. The girls are here for temporary. Aarohi was there. She said Hi, Sh...
 
-All of his frinds started seeing Sh. It wasn't common that Sh is talking to girls.
+All of his friends started seeing Sh. It wasn't common that Sh is talking to girls.- fun happened -
+
+Now, Sh friend invited the girls and stopped fighting because now they are saying that Aarohi is her bhabhi So they said and talked good. Sh giving party to boys and Aarohi to Girls for the selection of state level championship.
+
+After the party happened at canteen. Sh and Aarohi was walking on the street of school. Near the girls hostel. Because girls aren't allowed to go further, they are talking about chess. <mark style="color:yellow;">Sh was a Shy and Introvert person for girls</mark>. But this is the first time any girl is taking to Sh like that because Aarohi was a frank girl and she talk to everyone frankly. Sh also crushed Anne Frank #ff.
+
+Sh after talking about here and there, Sh is felling free with Aarohi.
+
+
 
 
 
