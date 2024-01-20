@@ -4,9 +4,10 @@
 
 ## Main Outlines for the School Love Part 1
 
-* [ ] School Love
-* [ ] Parents meet
-* [ ] Rainy Days
+* [x] School Love
+* [x] Parents meet
+* [x] Rainy Days
+* [ ] School Trip
 * [ ] My Friends Love Story
 * [ ] Cricket Tournament
 * [ ] Quiz Competition
@@ -14,7 +15,20 @@
 * [ ] Fairwell
 * [ ] Coming back and seeing her
 
+## Main Outlines for After School effects
 
+
+
+
+
+* [ ] h
+* [ ] h
+* [ ] h
+* [ ] h
+* [ ] h
+* [ ] h
+* [ ] h
+*
 
 
 

@@ -1,0 +1,35 @@
+# Baarish
+
+## Outline
+
+* [x] Me and my friend enjoying rain, eating
+* [x] Harshita's Parent came
+* [ ] My friend Jokes
+* [ ] Talked to her brother when he forgot while roaming
+* [ ] going to playground
+* [ ] Eye contact with her
+*
+*
+
+
+
+## Story
+
+There was raining that day. I was with my friend enjoying the chips and mango juice purchased from the school canteen and the rain that was awesome. I seen under the shade harshita was meeting to her parents. They came after travelling a long distance from Gujrat.
+
+She was happy and enjoying the meet with her parents and her little brother. I seen her family that was cute I said to my friend. My friend said "Everything looks cute when you are in love, and I think face of her is different from his father may be neighbour support made her alive" and he started laughing. I didn't found it funny.
+
+### Talk with her brother
+
+I said lets try to talk to her brother(My Sala).
+
+
+
+
+
+
+
+
+
+
+

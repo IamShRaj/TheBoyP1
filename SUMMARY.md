@@ -7,8 +7,11 @@
 ## Outlines
 
 * [😇 Main Outline](outlines/main-outline.md)
-* [1. School First Day View](outlines/1.-school-first-day-view.md)
-* [2. Harshita Parents came](outlines/2.-harshita-parents-came.md)
+* [School](outlines/school.md)
+* [Baarish](outlines/baarish.md)
+* [School Trip](outlines/school-trip.md)
+* [The show off](outlines/the-show-off.md)
+* [Foreigner](outlines/foreigner.md)
 
 ## Story
 
@@ -24,3 +27,4 @@
 
 * [13 January 2024](writing-stories-diary/13-january-2024.md)
 * [14 January 2024](writing-stories-diary/14-january-2024.md)
+* [19 January 2024](writing-stories-diary/19-january-2024.md)
