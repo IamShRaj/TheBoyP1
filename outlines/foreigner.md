@@ -46,13 +46,23 @@ All of his friends started seeing Sh. It wasn't common that Sh is talking to gir
 
 Now, Sh friend invited the girls and stopped fighting because now they are saying that Aarohi is her bhabhi So they said and talked good. Sh giving party to boys and Aarohi to Girls for the selection of state level championship.
 
+<div align="left" data-full-width="false">
+
+<figure><img src="../.gitbook/assets/image (8).png" alt="" width="188"><figcaption></figcaption></figure>
+
+</div>
+
+<div align="left">
+
+<figure><img src="../.gitbook/assets/image (7).png" alt="" width="188"><figcaption></figcaption></figure>
+
+</div>
+
 After the party happened at canteen. Sh and Aarohi was walking on the street of school. Near the girls hostel. Because girls aren't allowed to go further, they are talking about chess. <mark style="color:yellow;">Sh was a Shy and Introvert person for girls</mark>. But this is the first time any girl is taking to Sh like that because Aarohi was a frank girl and she talk to everyone frankly. Sh also crushed Anne Frank #ff.
 
-Sh after talking about here and there, Sh is felling free with Aarohi.
+Sh after talking about here and there, Sh is felling free with Aarohi. Aarohi was not stoping saying h\&t (here and there) things.
 
-
-
-
+<figure><img src="../.gitbook/assets/image (6).png" alt=""><figcaption></figcaption></figure>
 
 
 
