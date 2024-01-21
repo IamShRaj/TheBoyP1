@@ -48,19 +48,25 @@ Now, Sh friend invited the girls and stopped fighting because now they are sayin
 
 
 
-![](https://lh7-us.googleusercontent.com/R\_gTy1F\_kq-swXiQLVIIvVh9-G2kOiZC2d4auUKFhVx-u7aHScw2bBIWMrcCFuhlR6ZqAXVbMSLlvII5uEtocUEyhh9TL0DDeLfbyk4aVmoUofMTDiiL7q1WxLl00r6dp7fMv7iR0PWUaZUkjMyia1Q)![](../.gitbook/assets/image.png)![](<../.gitbook/assets/image (9).png>)![](<../.gitbook/assets/image (12).png>)
+![](https://lh7-us.googleusercontent.com/R\_gTy1F\_kq-swXiQLVIIvVh9-G2kOiZC2d4auUKFhVx-u7aHScw2bBIWMrcCFuhlR6ZqAXVbMSLlvII5uEtocUEyhh9TL0DDeLfbyk4aVmoUofMTDiiL7q1WxLl00r6dp7fMv7iR0PWUaZUkjMyia1Q)![](<../.gitbook/assets/image (1).png>)![](<../.gitbook/assets/image (9).png>)![](<../.gitbook/assets/image (12).png>)
 
-
+[foreigner.md](../songs/foreigner.md "mention")Song
 
 After the party happened at canteen. Sh and Aarohi was walking on the street of school. Near the girls hostel. Because girls aren't allowed to go further, they are talking about chess. <mark style="color:yellow;">Sh was a Shy and Introvert person for girls</mark>. But this is the first time any girl is taking to Sh like that because Aarohi was a frank girl and she talk to everyone frankly. Sh also crushed Anne Frank #ff.
 
-Sh after talking about here and there, Sh is felling free with Aarohi. Aarohi was not stoping saying h\&t (here and there) things.
+Sh after talking about here and there, Sh is felling free with Aarohi. Aarohi was not stoping saying h\&t (here and there) things. Things abount her likes and dislikes, her home and family , her navodaya's story. Sh never expected that any girl will talk to him like this...
+
+After so much talking they separated and said _Milte hai Regional me..._ .
+
+#### Next Day Bus Trip
 
 
 
+Bus was ready to depart - Sh packed his bag - Ready to go - Only Sh was Selected from his School - No Friends - Only Aarohi was known - but he was hesitating to talk to her.
+
+He gone to backside of the bus sit with some boys - made friends while the journey.&#x20;
 
 
 
-
-
+Sh was&#x20;
 

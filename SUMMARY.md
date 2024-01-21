@@ -13,15 +13,21 @@
 * [The show off](outlines/the-show-off.md)
 * [Foreigner](outlines/foreigner.md)
 
-## Story
+## 🎼 Songs
 
-* [🏫 Jnv Story - Scene - 1](story/jnv-story-scene-1.md)
+* [Try to See You](songs/try-to-see-you/README.md)
+  * [From Home](songs/try-to-see-you/from-home.md)
+* [Foreigner](songs/foreigner.md)
 
 ## Images/Archives
 
 * [Image Grid](images-archives/image-grid.md)
 * [1. Scene](images/1.-scene.md)
 * [2](images-archives/2.md)
+
+## Story
+
+* [🏫 Jnv Story - Scene - 1](story/jnv-story-scene-1.md)
 
 ## Writing Stories/Diary
 
