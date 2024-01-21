@@ -7,7 +7,9 @@
 * [x] School Love
 * [x] Parents meet
 * [x] Rainy Days
-* [ ] School Trip
+* [x] School Trip
+* [ ] Chess / Foreigner
+* [ ] The show off
 * [ ] My Friends Love Story
 * [ ] Cricket Tournament
 * [ ] Quiz Competition
@@ -21,13 +23,7 @@
 
 
 
-* [ ] h
-* [ ] h
-* [ ] h
-* [ ] h
-* [ ] h
-* [ ] h
-* [ ] h
+*
 *
 
 
