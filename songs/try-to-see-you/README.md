@@ -72,5 +72,31 @@
 
 ***
 
+(Verse 1) Upon leaving class, down the hallway I stroll, Her class in view, emotions take control. Breath halted, heart in a bind, Expressions trapped, words hard to find.
 
+(Pre-Chorus) Can't say it myself, let someone tell, In her class, where evenings swell. Always on the first bench, you reside, In your presence, my feelings abide.
+
+(Chorus) I try a hundred ways to express, But silence lingers, a deep distress. All night sitting, forgetting all, When I pass by, memories recall. When I see her, world fades away, In her presence, my heart's sway.
+
+(Verse 2) Maybe tomorrow, on the street we'll meet, Stop her footsteps, her heart to greet. Out from my class, through the window I gaze, Your class in view, in a silent daze.
+
+(Pre-Chorus) Holding hands, our future gleams, In your eyes, my life's sweetest dreams. Always on the first bench, you're there, In my thoughts, you're everywhere.
+
+(Chorus) Dreaming of you, my heart's endeavor, From kids to kids, a bond to treasure. Near the water cooler, in winter's chill, I wait for you, time standing still.
+
+(Bridge) Empty corridors, a lingering doubt, Yet I walk, shadows of hope about. Lingering thoughts, secrets untold, A silent tale, a love to unfold.
+
+(Verse 3) Out from my class, the routine persists, Your class, a realm where my heart insists. In the assembly, dreams unfold, Marrying you, a story to be told.
+
+(Pre-Chorus) In the mess, lines align, Matching with yours, a subtle sign. Lonely nights at the hostel, empty at home, Without you, solitude roams.
+
+(Chorus) Dreaming of you, my heart's endeavor, From kids to kids, a bond to treasure. Near the water cooler, in winter's chill, I wait for you, time standing still.
+
+(Bridge) Leaves dance around us, a love ballet, On this romantic evening, forever to stay. Whispers of love, like the autumn breeze, In your presence, my heart finds ease.
+
+(Verse 4) On a romantic evening in autumn's embrace, We sit on a park bench, hearts in a race. In that dress, you wear the hues of the fall, Uncontrollable feelings, love's sweet call.
+
+(Chorus) I love you, echoes in the silent air, A pledge of love, beyond compare. The park is our haven, where love's seeds sow, In the autumn breeze, our hearts aglow.
+
+(Outro) As the night deepens, a tranquil hush, Our love story, an intimate brush. Hand in hand, we face the unknown, In this autumn serenade, our love has grown. In the park, our love story we declare, Under the moonlight, where dreams align, In this romantic evening, forever thine.
 

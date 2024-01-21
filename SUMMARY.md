@@ -10,8 +10,8 @@
 * [School](outlines/school.md)
 * [Baarish](outlines/baarish.md)
 * [School Trip](outlines/school-trip.md)
-* [The show off](outlines/the-show-off.md)
 * [Foreigner](outlines/foreigner.md)
+* [The show off](outlines/the-show-off.md)
 
 ## 🎼 Songs
 
