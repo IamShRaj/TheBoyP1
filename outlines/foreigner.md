@@ -48,7 +48,7 @@ Now, Sh friend invited the girls and stopped fighting because now they are sayin
 
 
 
-![](https://lh7-us.googleusercontent.com/R\_gTy1F\_kq-swXiQLVIIvVh9-G2kOiZC2d4auUKFhVx-u7aHScw2bBIWMrcCFuhlR6ZqAXVbMSLlvII5uEtocUEyhh9TL0DDeLfbyk4aVmoUofMTDiiL7q1WxLl00r6dp7fMv7iR0PWUaZUkjMyia1Q)![](<../.gitbook/assets/image (1).png>)![](<../.gitbook/assets/image (9).png>)![](<../.gitbook/assets/image (12).png>)
+![](https://lh7-us.googleusercontent.com/R\_gTy1F\_kq-swXiQLVIIvVh9-G2kOiZC2d4auUKFhVx-u7aHScw2bBIWMrcCFuhlR6ZqAXVbMSLlvII5uEtocUEyhh9TL0DDeLfbyk4aVmoUofMTDiiL7q1WxLl00r6dp7fMv7iR0PWUaZUkjMyia1Q)![](<../.gitbook/assets/image (1) (1).png>)![](<../.gitbook/assets/image (9).png>)![](<../.gitbook/assets/image (12).png>)
 
 [foreigner.md](../songs/foreigner.md "mention")Song
 
@@ -68,5 +68,26 @@ He gone to backside of the bus sit with some boys - made friends while the journ
 
 
 
-Sh was&#x20;
+Sh was feeling alone.&#x20;
 
+
+
+### Outlines
+
+Going to new navodaya - staying there - winnings made - friends made - evening walk - happy talk - Unexpected Kiss
+
+
+
+
+
+
+
+![](<../.gitbook/assets/image (16).png>)![](<../.gitbook/assets/image (15).png>)![](<../.gitbook/assets/image (14).png>)![](<../.gitbook/assets/image (20).png>)![](<../.gitbook/assets/image (21).png>)![](<../.gitbook/assets/image (24).png>)
+
+
+
+
+
+
+
+<figure><img src="https://orchestration.civitai.com/v1/consumer/images/97A6C4F49293948299F73DFD83C54BC7DF5920618AB8C35A0F2FD984DB390A3F" alt=""><figcaption></figcaption></figure>

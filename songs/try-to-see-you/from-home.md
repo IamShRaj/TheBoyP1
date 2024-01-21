@@ -1,5 +1,7 @@
 # From Home
 
+<figure><img src="../../.gitbook/assets/image.png" alt=""><figcaption></figcaption></figure>
+
 (Verse 1) Upon leaving home, down the road I stroll, Her house appears, emotions take control. Breath halted, heart in a bind, Expressions trapped, words hard to find.
 
 (Pre-Chorus) Can't say it myself, let someone tell, In her lane, where evenings swell. As I walk a bit, her house draws near, In those moments, my joy and fear.
