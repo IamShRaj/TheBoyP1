@@ -11,7 +11,10 @@
 * [Baarish](outlines/baarish.md)
 * [School Trip](outlines/school-trip.md)
 * [Foreigner](outlines/foreigner.md)
+* [Corona Vacations](outlines/corona-vacations.md)
 * [The show off](outlines/the-show-off.md)
+* [Fun](outlines/fun.md)
+* [The Good Bye to School](outlines/the-good-bye-to-school.md)
 
 ## 🎼 Songs
 
@@ -34,3 +37,4 @@
 * [13 January 2024](writing-stories-diary/13-january-2024.md)
 * [14 January 2024](writing-stories-diary/14-january-2024.md)
 * [19 January 2024](writing-stories-diary/19-january-2024.md)
+* [Page](writing-stories-diary/page.md)

@@ -1,3 +1,7 @@
+---
+description: Clusters
+---
+
 # Foreigner
 
 Outlines
@@ -78,15 +82,18 @@ Going to new navodaya - staying there - winnings made - friends made - evening w
 
 
 
-
-
-
+##
 
 ![](<../.gitbook/assets/image (16).png>)![](<../.gitbook/assets/image (15).png>)![](<../.gitbook/assets/image (14).png>)![](<../.gitbook/assets/image (20).png>)![](<../.gitbook/assets/image (21).png>)![](<../.gitbook/assets/image (24).png>)
 
 
 
 
+
+## Outlines
+
+* [ ] Badminton
+*
 
 
 

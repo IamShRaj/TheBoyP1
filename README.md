@@ -6,7 +6,7 @@ description: >-
 
 # 😎 Summary
 
-
+{ Disclaimer :- Based on Real Events ( Sometimes inaccurate because of faded memories ) also added some Imaginary Events for Fun }
 
 Movie Name - The Boy Story / Hypnotised
 
