@@ -28,7 +28,10 @@
 
 
 
+#### Main Outlines after marriage
 
+* [ ] Sh sees her wife - on the park's bench weeping - Sh on the ground - on knees in front of wife - Saying what you want Just tell - without asking any question I will do it - She said I want divorce - Ok - Sh smiles but sudden drops started coming out from eyes - one more heartbreak - (Ed. Sheeran - Perfect Song) -  Sh back to mountains. ( wifes friend said that she weeps daily (allthings was planned by wife to take divorce ))
+*
 
 
 
