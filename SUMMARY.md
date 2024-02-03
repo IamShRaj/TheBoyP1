@@ -9,6 +9,7 @@
 * [😇 Main Outline](outlines/main-outline.md)
 * [School](outlines/school.md)
 * [Baarish](outlines/baarish.md)
+* [Holi](outlines/holi.md)
 * [School Trip](outlines/school-trip.md)
 * [Foreigner](outlines/foreigner.md)
 * [Corona Vacations](outlines/corona-vacations.md)
